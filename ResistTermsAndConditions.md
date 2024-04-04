@@ -63,7 +63,7 @@ The failure of Resist to enforce any right or provision of these Terms will not 
 
 ## 14. Contact Information
 
-If you have any questions or concerns about these Terms or the Bot, please contact us at plaguehelp247@gmail.com.
+If you have any questions or concerns about these Terms or the Bot, please contact us at atklnchtv@gmail.com.
 
 ## 15. Acknowledgment
 
